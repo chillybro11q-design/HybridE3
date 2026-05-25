@@ -1,2 +1,0 @@
-# HybridE3
-Gugugaga
